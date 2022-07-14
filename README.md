@@ -6,6 +6,6 @@ October 2022 @maaretp has 25 years career milestone - silver jubilee. As communi
 
   * the online conference of my career inspirations
 
-  * the book as optional payment method
+  * the book as way to raise some money while providing 25 articles + summaries from talks from the online conference https://leanpub.com/maaretpsilverjubilee
 
   * the workshops to pass some of it forward
